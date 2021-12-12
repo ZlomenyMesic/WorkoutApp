@@ -1,1 +1,1 @@
-Aplikace a stránky vytvořil ZlomenyMesic, ne Ondra :)
+Aplikace a stránky vytvořil ZlomenyMesic a KryKom, ne Ondra :)
